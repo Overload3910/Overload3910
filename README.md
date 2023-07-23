@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Overload3910
 - 👀 I’m interested in all things Bitcoin and Privacy
 - 🌱 I’m currently learning about Bitcoin and Computer stuff
-- 📫 How to reach me via E-Mail under Overload3910@pm.me
+- 📫 You can reach me via E-Mail under Overload3910@pm.me
 - 🔐 TBD
 
 <!---
