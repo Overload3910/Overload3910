@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Overload3910
 - 👀 I’m interested in all things Bitcoin and Privacy
-- 🌱 I’m currently learning about Bitcoin and Computer stuff
+- 🌱 I’m currently learning all I can about Bitcoin other Freedom Tech
 - 📫 You can reach me via E-Mail under Overload3910@pm.me
 - 🔐 TBD
 
